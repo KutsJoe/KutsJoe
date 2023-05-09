@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, You are welcome to my profile 🤝
 
 <!--
 **KutsJoe/KutsJoe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
